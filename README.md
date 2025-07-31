@@ -1,2 +1,0 @@
-# AntiFreecam
-credit to Charlsdarbz
